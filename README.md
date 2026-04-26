@@ -1,4 +1,4 @@
-## Hello
+## hi ^.^
 
 I'm Michał - AI student at Poznań University of Technology + Head of Finances & Logistics at GHOST Day: AMLC
 
